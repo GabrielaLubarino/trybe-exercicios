@@ -1,1 +1,1 @@
-	VAmo que vamo
+Vamo que vamo
